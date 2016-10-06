@@ -6,3 +6,8 @@ er is en nieuwe versie van de bestuurbare-lamp  deze versie heeft heel veel meer
     
  
  veel plezier
+ 
+ 
+ 
+ 
+ # sorry voor het foutje
